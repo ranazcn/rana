@@ -14,3 +14,4 @@ askerin milletin bayrağınla çok yaşa
 arş arş arş ileri ileri arş ileri marş ileri
 dönmez geri Türk'ün askeri!
 
+zamanı Tanrı yaşar insanoğlu ölmek için doğmuştur
